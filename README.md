@@ -1,5 +1,5 @@
 # My-Excel-Certificte
-[Kamalpreet.Kaur.pdf](https://github.com/user-attachments/files/16321081/Kamalpreet.Kaur.pdf)
+![whatsapp ](https://github.com/user-attachments/assets/d1d67923-81d8-4700-8582-b9a156cc60b4)
 
 
 I am very glad to complete my excel course from online great learning platform.
